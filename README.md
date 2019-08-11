@@ -1,2 +1,0 @@
-# Boyanblold.github.io
-blold
